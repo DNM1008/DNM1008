@@ -7,7 +7,7 @@
 	
 	Facebook: https://www.facebook.com/dungnguyenmanh1008/
 	
-	Reddit: https://www.reddit.com/
+	Reddit: https://www.reddit.com/user/dungnm10082000
 	
 	Instagram: https://www.instagram.com/zeusalmt/
 	
