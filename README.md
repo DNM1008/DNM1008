@@ -3,15 +3,16 @@
 - 🌱 I’m currently learning Economics and Finance
 - 📫 How to reach me: 
  
-	My email: dungnm10082000@gmail.com
 	
-	Facebook: https://www.facebook.com/dungnguyenmanh1008/
+	*[Email](dungnm10082000@gmail.com)*
 	
-	Reddit: https://www.reddit.com/user/dungnm10082000
+	*[Facebook](https://www.facebook.com/dungnguyenmanh1008/)*
 	
-	Instagram: https://www.instagram.com/zeusalmt/
+	*[Reddit](https://www.reddit.com/user/dungnm10082000)*
 	
-	LinkedIn: https://www.linkedin.com/in/dung-nguyen-415874168/
+	*[Instagram](https://www.instagram.com/zeusalmt/)*
+	
+	*[LinkedIn](https://www.linkedin.com/in/dung-nguyen-415874168/)
 
 <!---
 DNM1008/DNM1008 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
