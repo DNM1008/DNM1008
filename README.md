@@ -12,7 +12,7 @@
 	
 	*[Instagram](https://www.instagram.com/zeusalmt/)*
 	
-	*[LinkedIn](https://www.linkedin.com/in/dung-nguyen-415874168/)
+	*[LinkedIn](https://www.linkedin.com/in/dung-nguyen-415874168/)*
 
 <!---
 DNM1008/DNM1008 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
