@@ -4,15 +4,15 @@
 - 📫 How to reach me: 
  
 	
-	*[Email](dungnguyen10082000@gmail.com)*
+	* Email: dungnguyen10082000@gmail.com
 	
-	*[Facebook](https://www.facebook.com/dungnguyenmanh1008/)*
+	* [Facebook](https://www.facebook.com/dungnguyenmanh1008/)*
 	
-	*[Reddit](https://www.reddit.com/user/dungnm10082000)*
+	* [Reddit](https://www.reddit.com/user/dungnm10082000)*
 	
-	*[Instagram](https://www.instagram.com/zeusalmt/)*
+	* [Instagram](https://www.instagram.com/zeusalmt/)*
 	
-	*[LinkedIn](https://www.linkedin.com/in/dung-nguyen-415874168/)*
+	* [LinkedIn](https://www.linkedin.com/in/dung-nguyen-415874168/)*
 
 <!---
 DNM1008/DNM1008 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
