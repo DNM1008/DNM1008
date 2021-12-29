@@ -4,7 +4,7 @@
 - 📫 How to reach me: 
  
 	
-	*Email* (dungnguyen10082000@gmail.com)
+	*[Email](dungnguyen10082000@gmail.com)
 	
 	*[Facebook](https://www.facebook.com/DNM1008/)*
 	
