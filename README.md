@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DNM1008
+- 👋 Hi, I’m Mike
 - 👀 I’m interested in trying out new software for Windows and Linux, although I'm more familiar with Windows and Debian-based distros than Arch-based
 - 🌱 I’m currently learning Economics and Finance
 - 📫 How to reach me: 
