@@ -9,8 +9,6 @@
 	
 	*[Reddit](https://www.reddit.com/user/dungnm10082000)*
 	
-	*[Instagram](https://www.instagram.com/zeusalmt/)*
-	
 	*[LinkedIn](https://www.linkedin.com/in/dung-nguyen-415874168/)*
 
 <!---
