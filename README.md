@@ -1,5 +1,6 @@
 - 👋 Hi, I’m Mike
 - 🌱 I’m currently learning  Data Management and Strategy
+- 🖥 I did my Bachelor from the University of Sydney, majoring in Finance and Economy
 - 📫 How to reach me: 
  
 	
