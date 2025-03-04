@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mike
+- 👋 Hi, I’m Mike, a Data Scientist at VCB
 - 🌱 I did my Master in the University of Sydney, specialising in Data Management and Strategy
 - 🖥 I did my Bachelor in the University of Sydney, majoring in Finance and Economy
 - 📫 How to reach me: 
